@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fashionbutcrypto
+- 👋 Hi, I’m @Cryptobutfashion
 - 👀 I’m interested in all things fashion. 
 - 🌱 I’m currently learning how to make wearables on Decentraland
 - 💞️ I’m looking to collaborate on Decentraland wearables
